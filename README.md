@@ -3,7 +3,7 @@ Hellow everyone!!! 👋<br> ***M. Abiel Dhiya Ulhaq in here*** <br><br>Saya meru
 
 
 ## 🌐 social media aku:
-* My Instagram: [Bieldhiyya](https://instagram.com/Bieldhiyya) <br>
+* Instagram: [Bieldhiyya](https://instagram.com/Bieldhiyya) <br>
 * Tiktok: [itsdhyya](https://www.tiktok.com/@itsdhyyaa?_r=1&_t=ZS-91VjiDd7v4J) <br>
 * E-mail: [justulhaq](mailto:justulhaq19@gmail.com) 
 
