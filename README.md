@@ -1,4 +1,4 @@
-# Bielll-dhyya 
+# abieldhiyaa 
 Hellow everyone!!! 👋<br> ***M. Abiel Dhiya Ulhaq in here*** <br><br>Saya merupakan mahasiswa STIKOM EL-RAHMA, Jurusan Informatika. Saya sedikit tertarik dengan dunia per-codingan dan sebagainya, sehingga saya memutuskan untuk mengambil jurusan informatika. Saya mempunyai harapan agar saya bisa lebih menguasai tentang pemrograman, oleh karena itu let's learn together🙌.<br><br> **"Kepadamu 2000 tahun dari sekarang** <br> **Darimu 2000 tahun yang lalu"** <br> **- attack on titan** <br><br>Welcome to my profil🫵👋<br>
 
 
